@@ -26,12 +26,13 @@
 **Stoney Playlist:** [✅​](https://open.spotify.com/playlist/1okyxUc21Q4T8VNm3DwSW3?si=1224791d62cf4004)
 
 ## **💚​ Fixations**
- ˗ˏˋ ★ COD {Call of duty} ˎˊ˗
- ˗ˏˋ ★ Digital Pixel Art ˎˊ˗
- ˗ˏˋ ★ My Original Characters ˎˊ˗
- ˗ˏˋ ★ Marble Hornets ˎˊ˗
- ˗ˏˋ ★ QSMP {Yes I know.} ˎˊ˗
- ~ {MORE TO BE ADDED} ~
+- ˗ˏˋ ★ COD {Call of duty} ˎˊ˗
+- ˗ˏˋ ★ Digital Pixel Art ˎˊ˗
+- ˗ˏˋ ★ My Original Characters ˎˊ˗
+- ˗ˏˋ ★ Marble Hornets ˎˊ˗
+- ˗ˏˋ ★ QSMP {Yes I know.} ˎˊ˗
+ 
+-  ~ {MORE TO BE ADDED} ~
 
  <p align="center">
  <img height=200 src=https://pixelsafari.neocities.org/dividers/more/scrollbar.gif>
