@@ -9,9 +9,8 @@
 
 ## **💭​ About me** 𑣲
 
- <br><img height=300 src="https://media.discordapp.net/attachments/1319153582674808844/1459719563863261377/Untitled599_20260110202403.png?ex=69644d48&is=6962fbc8&hm=d259adc1f82afaef285b24a96b217c5452a8bc157226a143b051fd7b71326545&=&format=webp&quality=lossless&width=960&height=960">
 -  Name: **Cory & GutZ**
--  Age: **18+**
+-  Age: **20+**
 - Hobbies: **Sleeping, Gaming, Art {Verified Procrastinator}** <33
 - Work: **UNEMPLOYED**
 - Language: **English { Sorry ! }**
