@@ -5,7 +5,7 @@
 
 ### Hiya! 💬​ I'm C.V.G ˚꩜
 
-*Casual THC Gummie Downer*
+*Casual Pony Town Spectator*
 
 ## **💭​ About me** 𑣲
 
