@@ -18,7 +18,7 @@
  <img height=100 src=https://pbs.twimg.com/media/GhWSNQLXgAEXwU7?format=jpg&name=large>
 <br><br>
 
-**Rentry:** [🍃​](https://rentry.co/CherryToastCory)
+**Rentry:** [🫧​](https://rentry.co/CVGsLocker)
 
 ## **💫​ Music IS life.** 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31ru46nmgacwogtnsfuamdzpqxva&count=3)
