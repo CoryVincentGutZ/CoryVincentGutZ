@@ -9,7 +9,7 @@
 
 ## **💭​ About me** 𑣲
 
--  Name: **Cory & GutZ**
+-  Name: **Ling & Vince**
 -  Age: **21+**
 - Hobbies: **Sleeping, Gaming, Art {Verified Procrastinator}** <33
 - Work: **UNEMPLOYED**
