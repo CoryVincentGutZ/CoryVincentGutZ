@@ -10,7 +10,7 @@
 ## **💭​ About me** 𑣲
 
 -  Name: **Cory & GutZ**
--  Age: **20+**
+-  Age: **21+**
 - Hobbies: **Sleeping, Gaming, Art {Verified Procrastinator}** <33
 - Work: **UNEMPLOYED**
 - Language: **English { Sorry ! }**
