@@ -3,13 +3,13 @@
  <p align="center">
  <img height=200 src=https://pixelsafari.neocities.org/dividers/more/paperclips.gif>
 
-### Hiya! 💬​ I'm C.V.G ˚꩜
+### Hiya! 💬​ I'm Linthour. ˚꩜
 
 *Casual Pony Town Spectator*
 
 ## **💭​ About me** 𑣲
 
--  Name: **Ling & Vince**
+-  Name: **Lint & Vince**
 -  Age: **21+**
 - Hobbies: **Sleeping, Gaming, Art {Verified Procrastinator}** <33
 - Work: **UNEMPLOYED**
