@@ -23,7 +23,7 @@
 ## **💫​ Music IS life.** 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31ru46nmgacwogtnsfuamdzpqxva&count=3)
 
-**Stoney Playlist:** [✅​](https://open.spotify.com/playlist/1okyxUc21Q4T8VNm3DwSW3?si=1224791d62cf4004)
+**Personal Playlist:** [✅​](https://open.spotify.com/playlist/0gQfMaidQm887za5iq4wDG?si=F7X0O9sbSOqc8tAXDyXI0A)
 
 ## **💚​ Fixations**
 - ˗ˏˋ ★ COD {Call of duty} ˎˊ˗
